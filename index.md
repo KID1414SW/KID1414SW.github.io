@@ -22,18 +22,24 @@ layout: post
   置于死地而生  
   
   且试吾剑！  
-&npsp;
-&npsp;
-&npsp;  
-&npsp;
-&npsp;
-&npsp;
-&npsp;
-&npsp;
-&npsp;  
-&npsp;  
-&npsp;  
-&npsp;  
+
+
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+&nbsp;
+
+
+
   
 不行，太严肃了  
 不符合我全部的性格  
