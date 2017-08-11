@@ -21,24 +21,20 @@ layout: post
   
   置于死地而生  
   
-  且试吾剑！
-
-
-</br>
-</br>
-</br>  
-</br>  
-</br>  
-</br>  
+  且试吾剑！  
+&npsp;
+&npsp;
+&npsp;  
+&npsp;
+&npsp;
+&npsp;
+&npsp;
+&npsp;
+&npsp;  
+&npsp;  
+&npsp;  
+&npsp;  
   
-  
-  
-  
-  
-  
-  
-  
-  
 不行，太严肃了  
 不符合我全部的性格  
 放张图给诸位压压惊~
