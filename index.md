@@ -46,7 +46,7 @@ layout: post
 放张图给诸位压压惊~
 
 
-
+![cover](http://att.bbs.duowan.com/forum/201401/04/121111lpqsuseqlzwswmz0.jpg)
 
 
 
