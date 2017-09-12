@@ -8,6 +8,7 @@ keywords:
 
 
 
+![cover](http://ouf1q5dmf.bkt.clouddn.com/%E6%89%98.jpg)
 
 
 艺术在于表达，
