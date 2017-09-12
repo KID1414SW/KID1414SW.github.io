@@ -1,9 +1,7 @@
-
-
 ---
 layout: post
-title: 
-category: 作业
+title: 多余的话与国际歌
+category:作业
 tags: essay
 keywords: 
 ---
